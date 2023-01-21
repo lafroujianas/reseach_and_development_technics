@@ -1,0 +1,1 @@
+# reseach_and_development_technics
